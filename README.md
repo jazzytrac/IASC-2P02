@@ -4,9 +4,9 @@
 
 Welcome to my online profolio for IASC 2P02!
 
-## Interative Sudy Guide 
+## Interative Study Guide 
 
-Explore my Interactive Study guid [here](2P02Team1InteractiveStudyGuide.html).
+Explore my Interactive Study Guide [here](2P02Team1InteractiveStudyGuide.html).
 
 ## Interactive Genealogy 
 
