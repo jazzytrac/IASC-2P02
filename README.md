@@ -14,7 +14,7 @@ Explore my interactive genealogy here.
 
 # Speculative Fiction 
 
-## Title for your story here
+## Rent a Movie
 Reporter: So tell me how this all began? 
 
 Well, ever since I was a kid, I loved watching movies with my dad. I remember spending hours trying to find the movie I wanted to rent for the weekend; at this magical place called Blockbuster. At first, they only sold VHS tapes, but then after a couple of years, they started to come out with DVDs. Each time we went, we choose two movies, one for me and one for my older sister Becca. The problem with Blockbuster was that you could only rent for three days and, if you went over that time, you would get charged. Around once a month, we would get the chance to go to the movie theaters. Cineplex was the place to be on a Friday night. Popcorn, candy, and sprite would be what we would get every time.
